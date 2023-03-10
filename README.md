@@ -1,1 +1,1 @@
-# DiegoGaray.github.io
+# Diego-Garay.github.io
